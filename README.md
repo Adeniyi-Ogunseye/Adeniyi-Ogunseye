@@ -1,2 +1,1 @@
-Adeniyi-Ogunseye is currently learning data analytics tools on
-in order to create a thrivibg career in data analytics.
+Adeniyi Ogunseye is currently honing his skills in data analytics in order to make a successful career in the field.
